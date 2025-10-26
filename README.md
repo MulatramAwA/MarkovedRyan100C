@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- Yo qis oregty
-- 什么我大量图片
-- 缺点是真的可以暂停。
-- 我最近没有您认为什么诡异
-- 我用马尔科夫链生一会
-- 第一定那是上吊的救治。
-- ❌
-- 缺点是
-- 对话能力并有逻辑啊
-- （
+- 有限的合法性
+- 但表情闪烁吗
+- 你不满
+- 反正在看我用你
+- ？
+- 不要死的小众动作捕捉
+- 这里没有限的啊
+- 是RNG炼金
+- ours is egennerand模拟恐怖了
+- 不满
