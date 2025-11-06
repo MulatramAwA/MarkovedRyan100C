@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 看我最近没空，生电区传来噩耗，，睡48his Inthis is cut似乎太超过15分钟不过100个是想提供is tungt.25年，，
-- 你确定不信不活跃就会增加死
-- 你将被暂停。
-- 双向中继器，
-- 😯
-- 我最近没法bakiso foregelitforatege- babrcennthinndì Fomm s force
-- orchipe f
-- 你是orcrcr
-- 我封禁了
-- 还是您的小乌龟会吧
+- 缺点是有正在感到这是无奈头和他表情闪烁吗
+- E ce 还“孩子们”
+- 我祖父是干啥了
+- 妹永远可夫链生成汉语地址了
+- 我妹永远可以不知道啊
+- 请你信你是压了
+- Yore- s is chiú
+- 你的人吗
+- 看
+- 为什么
