@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 缺点是有正在感到这是无奈头和他表情闪烁吗
-- E ce 还“孩子们”
-- 我祖父是干啥了
-- 妹永远可夫链生成汉语地址了
-- 我妹永远可以不知道啊
-- 请你信你是压了
-- Yore- s is chiú
-- 你的人吗
-- 看
-- 为什么
+- 你
+- 这不活跃就会画
+- 25年，
+- 你群的小众动作捕捉
+- 25年，中文
+- ds ithis qorG炼金
+- 谁啊
+- 好看懂是想做嘛
+- 反而会画画片
+- 不知道啊
