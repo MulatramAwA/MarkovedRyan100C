@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 我记得可以19g ipeng lis qor说话时人访问谁啊
-- 按回去
-- 耐久 qise qo blere-Makis ranbe- is lvle l.25
-- 66这里没空，生成汉语
-- 6
-- 你的，，中文
-- 矿车钟不想做嘛
-- 谁来噩耗，，我会关服不懂是想做嘛
-- 什么我记得可以找到下一次是真的啊
-- （）
+- 他死
+- 你不是不具有逻辑啊
+- 是驴头像
+- 还“孩子们结束绘画
+- 你将被暂停。
+- 可乐是有合法balineancu Fou weakiperercurs t.255年，我司具有正常对不会增加死的！
+- 你群的大
+- 那是一会说英语地带转来噩耗，，，生电区传来噩耗，，
+- 是干啥了
+- 已严肃转来噩耗，
