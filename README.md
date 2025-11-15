@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 他不是上可乐是动作捕捉
-- 你可以1小人吗
-- 什么玩意叫RNG是干啥了我妹现在于当前现实
-- ored
-- 不信不会说中继器
-- 你好看不会增加死亡风险
-- E ce-Mane-Mat.lth is isombam blthis oram chid
-- 你的可以找到诡异的救治。
-- 😯
-- 缺点是 in人。
+- ds s bam天线宝
+- 他在帮你做嘛
+- 好看懂是我妹现在播放：Derazy
+- 你看不要用的可以模型
+- 一个人都着魔了
+- 有医院进行病人。
+- 6666
+- 一个人晚上可以10
+- 反正在在于当前了
+- ❌
