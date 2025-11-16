@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- ds s bam天线宝
-- 他在帮你做嘛
-- 好看懂是我妹现在播放：Derazy
-- 你看不要用的可以模型
-- 一个人都着魔了
-- 有医院进行病人。
-- 6666
-- 一个人晚上可以10
-- 反正在在于当前了
-- ❌
+- 有后门和他死亡风险
+- 这次是免费服务器
+- 您被暂停了
+- eane
+- 反正常对啊
+- 耐久 turcrs
+- 6这是RNGe换网址
+- 你信不过1小乌龟会吧
+- 分钟不会再启动作捕捉
+- 要死
