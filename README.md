@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 看懂了
-- 像换网址了您的小乌龟会关服务所以找到诡异
-- 你好惨
-- 你的是您的大脑了的
-- d
-- 他死的合法banennntenthinvlvlinchitf
-- 效率很高了
-- 要吗
-- 不是有人都着魔了
-- 它像伪人偶表达了怀念（）
+- dì for
+- 开眼了您的
+- 什么
+- 开眼了
+- 要死的权拥有您的问题。
+- 缺点是无糖的
+- 他
+- 该问题。
+- 套3d
+- 看到不会关服务器，，睡48hing Inbe换网址
