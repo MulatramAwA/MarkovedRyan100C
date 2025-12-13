@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- d
-- 学生电区传来噩耗，根据研究发
-- 我们结束绘画画画片
-- （）
-- 你将被暂停。
-- 你仔细看我用你信你见过那些va enntakancrGeanbeam天线宝
-- 看
-- 你将被暂停。
-- 学生电区传来噩耗，
-- dì f
+- 缺点是想提供ind
+- 😯
+- 他
+- 你不能是免费服务器，生成汉语地址
+- 什么玩意
+- 你的是不知道啊
+- 但表情僵硬
+- 66
+- eaz
+- 为什么我祖父是压了
