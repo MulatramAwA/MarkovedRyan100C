@@ -1,13 +1,13 @@
 # MarkovedRyan100C
 To gennerate rubbish sentences.
 ## Rubbish Of The Day
-- 缺点是想提供ind
-- 😯
+- 不会再搁一定那玩意
+- 你不知道啊
+- 那些valiperazy
+- 什么玩意叫RNG炼金
+- 你看什么我妹永远可以19gencerakis 还“孩子们”
 - 他
-- 你不能是免费服务器，生成汉语地址
-- 什么玩意
-- 你的是不知道啊
-- 但表情僵硬
-- 66
-- eaz
-- 为什么我祖父是压了
+- 正常对啊
+- 你不具有合法bam fo cerere-Mands id模拟恐怖了的啊无奈头像伪人访问谁来噩耗，，中国人。
+- 我司具有您有权拥有后门和马嘴了我因该要用的
+- 这么这不满
